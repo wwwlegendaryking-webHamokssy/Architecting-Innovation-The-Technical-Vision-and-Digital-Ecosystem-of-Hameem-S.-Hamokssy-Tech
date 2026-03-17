@@ -16,5 +16,3 @@ YouTube: https://youtube.com/@HameemSHamokssyTech
 Twitter/X: https://twitter.com/HameemSHamokssyTech
 
 Blogger: https://HameemSHamokssyTech.blogspot.com
-
-https://hameemshamokssytech.blogspot.com/path-to-your-photo.jpg
